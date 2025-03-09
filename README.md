@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and etc...
 - 🌱 I’m currently learning coding and etc.. also
 - 💞️ I’m looking to collaborate with no one (for now)
-- 😄 Pronouns: he/him they/them she/her
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: coding is the best thing!!!!!!
 
 <!---
